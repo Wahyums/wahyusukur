@@ -1,0 +1,2 @@
+# wahyusukur
+latihan 1
